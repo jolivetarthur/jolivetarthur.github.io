@@ -10,6 +10,11 @@ Je suis à la recherche de nouvelles opportunités pour acquérir de l'expérien
 **2021:** Obtention du Baccalauréat mention assez bien, spécialités histoire des arts et SES, LYCÉE LOUIS DE BROGLIE
 
 ## Expérienes professionnelles
+**Avril-Juin 2023:** STAGE - COMMUNICATION DIGITALE
+- Créations graphiques & sonores
+- Utilisation du CMS WordPress
+- Montage vidéo
+
 **Août 2022:** CDD - EMPLOI D'ÉTÉ, France Galop
 - Envoi de courrier 
 - numérisation de documents
@@ -21,5 +26,6 @@ Je suis à la recherche de nouvelles opportunités pour acquérir de l'expérien
 
 **Décembre 2021-Mars 2022:** Equipier polyvalent en service et cuisine, McDonald's
 Equipier polyvalent en service et cuisine
+
 
 

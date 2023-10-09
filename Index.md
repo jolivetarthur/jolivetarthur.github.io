@@ -1,5 +1,4 @@
 # Jolivet Arthur                                                               
-![Super photo de moi](./id.jpg)
 <img src="./id.jpg" width="300" alt="Photo de moi">
 **Alternant en Infographie**
 

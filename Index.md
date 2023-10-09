@@ -43,9 +43,8 @@ Equipier polyvalent en service et cuisine
 
 ## Outils
 - Suite Adobe (Photshop, Illustrator, InDesign)
-- 
 - Fl Studio
-- 
-
-
+- Zotero
+- Zettlr
+  
 

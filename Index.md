@@ -7,9 +7,9 @@
 
 📧- jolivetarthur1@gmail.com
 
-[LinkdeIn:](https://www.linkedin.com/in/arthur-jolivet-221ab6223)
-
 Mon Univers: **https://shorturl.at/EFM09**
+
+[LinkdeIn](https://www.linkedin.com/in/arthur-jolivet-221ab6223)
 
 ## A propos de moi
 Étudiant dans le secteur de la communication numérique. Passionné et motivé par le milieu du design graphique et de la communication digitale de manière plus générale. 

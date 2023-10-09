@@ -48,5 +48,8 @@ Equipier polyvalent en service et cuisine
 - Fl Studio
 - Zotero
 - Zettlr
-  
+
+## Contact
+- Email: jolivetarthur1@gmail.com
+- LinkedIn: [Mon LinkedIn]([https://www.linkedin.com/in/monprofil/](https://www.linkedin.com/in/arthur-jolivet-221ab6223/)https://www.linkedin.com/in/arthur-jolivet-221ab6223/)
 

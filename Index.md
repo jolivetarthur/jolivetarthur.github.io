@@ -1,5 +1,8 @@
 # Jolivet Arthur
 **Alternant en Infographie**
+📞- 0782946660
+📧- jolivetarthur1@gmail.com
+Mon Univers: **https://shorturl.at/EFM09**
 
 ## A propos de moi
 Étudiant dans le secteur de la communication numérique. Passionné et motivé par le milieu du design graphique et de la communication digitale de manière plus générale. 
@@ -26,6 +29,20 @@ Je suis à la recherche de nouvelles opportunités pour acquérir de l'expérien
 
 **Décembre 2021-Mars 2022:** Equipier polyvalent en service et cuisine, McDonald's
 Equipier polyvalent en service et cuisine
+
+## Compétences 
+- Graphisme
+- Photographie
+- Community management
+- Gestion de caisse
+- Production musicale
+- Travail en équipe
+
+## Outils
+- Suite Adobe (Photshop, Illustrator, InDesign)
+- 
+- Fl Studio
+- 
 
 
 

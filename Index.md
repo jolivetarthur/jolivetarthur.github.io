@@ -1,7 +1,9 @@
 # Jolivet Arthur
 **Alternant en Infographie**
 📞- 0782946660
+
 📧- jolivetarthur1@gmail.com
+
 Mon Univers: **https://shorturl.at/EFM09**
 
 ## A propos de moi

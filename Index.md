@@ -7,6 +7,8 @@
 
 📧- jolivetarthur1@gmail.com
 
+[LinkdeIn:](https://www.linkedin.com/in/arthur-jolivet-221ab6223)
+
 Mon Univers: **https://shorturl.at/EFM09**
 
 ## A propos de moi
@@ -48,8 +50,3 @@ Equipier polyvalent en service et cuisine
 - Fl Studio
 - Zotero
 - Zettlr
-
-## Contact
-- Email: jolivetarthur1@gmail.com
-- LinkedIn: [Mon LinkedIn](https://www.linkedin.com/in/arthur-jolivet-221ab6223)
-
